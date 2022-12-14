@@ -16,7 +16,7 @@ As a experienced Data Scientist and interpreunersip, ability to work in team env
 
 **Links:**
 * [Blog](http://sigmoidal.ai)
-* [LinkedIn](https://www.linkedin.com/in/carlosfab)
+* [LinkedIn](https://www.linkedin.com/in/jhonnatan-daniel-lucio-2898471a3/)
 * [Medium](https://www.medium.com)
 
 
